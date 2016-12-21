@@ -14,18 +14,15 @@ To involve myself in a challenging opportunity that will help me explore my pote
 *  Junior programer certificate
 (current enroll)
 
-#####Bellevue College 
+#####Bellevue College ( September 2015 - Present )
 * Web design and web development certificate 
 * Adobe Photoshop and InDesign certificate
- September 2015 - Present 
- 
-#####University of Washington Bothell 
-* Bachelor of Disciplinary of Art
- September 2014 – August 2016 
 
-#####Seattle Central College 
+#####University of Washington Bothell  ( September 2014 – August 2016 )
+* Bachelor of Disciplinary of Art
+
+#####Seattle Central College  (  September 2012 – August 2014 )
 * Degree of Associate of Arts
-  September 2012 – August 2014 
 
 ----
 
